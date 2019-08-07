@@ -1,1 +1,1 @@
-# qwertycoin-marketing
+# Qwertycoin Marketing Guide
